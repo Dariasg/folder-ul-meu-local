@@ -1,1 +1,1 @@
-# folder-ul-meu-local
+acest text a fost scris de pe pc
